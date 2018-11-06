@@ -43,3 +43,8 @@ Unit VIII, IX, X
 | 10 Th | 15 Th | 20 Th |
 | ------ | ------ | ------ |
 | Rp 1.424.550 | Rp 1.059.765 | Rp 882.668 |
+
+BUNGA 5% p.a flat s.d KPR berakhir (syarat & ketentuan berlaku)
+
+### Ada pertanyaan lebih lanjut? Jangan ragu untuk segera menghubungi kami
+#### Marketing Pemasaran: (Maya) 0853 5036 9449
