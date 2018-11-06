@@ -6,7 +6,7 @@
 ## Perumahan "Lewu Tatau"
 Miliki segera rumah bersubsidi sederhana & sehat yang kami bangun untuk Anda. Tipe 36, lokasi jl. kecipir, Panarung, Pahandut, Kota Palangka Raya.
 
-Unit VIII, IX, X
+Lewu Tatau VIII, IX, X
 ![rumah siap huni](https://tirtabuana.github.io/assets/img/2.jpeg)
 ![rumah siap huni](https://tirtabuana.github.io/assets/img/3.jpeg)
 ![rumah siap huni](https://tirtabuana.github.io/assets/img/4.jpeg)
